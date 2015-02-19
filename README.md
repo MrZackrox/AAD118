@@ -9,4 +9,4 @@
  
  So to start with I wanted to look at marco photography. Actualy before I start I fell like the term macro should not be used for this category as macro is more and less the same as micro photography just a bit further away. 
  
- <img src="project-1/micro-example.jpg" atl="Example Image of Micro Photography"/>
+ <img src="project_1/micro-example.jpg" atl="Example Image of Micro Photography"/>
