@@ -3,10 +3,17 @@
  Imaging and Data Visualisation
  
  
- Research for Project 1- Macro and Micro Photography.
+ Research for Project 2- Ilustrated Book Covers.
  
- To start of this project I done a  healthy bit of research into other photographers in the field of each category. I was happy when I heard that we were doing a photography project as I love to take photographs given that I dont do it as far often as I should. I would like to start at least once a week going out and taking photographs of nature and other subjects that capture my attention. As I fell that this will give me a better eye in choosing what goes into the end "frame" of what ever I am doing. What I mean by this is that it doesn't matter what you are doing you bahve to see how every thing act amd mixes with each other this can be a piece of text to the prosition of the photograph that you take.
+ So for this porject I was a bit on the fence with it as I have all ready done this last year so I felt like I was back in that mindset. I couldn't get last years idea out of my head for a few day and now that I have actually read the Hobbit and am currently reading The Lord Of The Rings I fell that I could do it more justice than I did my first time. Though I fell that it would be hard for me to get away from what I went for with the covers last time. So I am going to just have to get on with a new idea.
  
- So to start with I wanted to look at marco photography. Actualy before I start I fell like the term macro should not be used for this category as macro is more and less the same as micro photography just a bit further away. 
- 
- <img src="project_1/micro-example.jpg" atl="Example Image of Micro Photography"/>
+I was sitting there in class doing some searching of genres and other books that could possibably be up my ally. When I was doing this Richard Weston aka [Acejet170](http://www.acejet170.typepad.com/) came over and had a chat with me about all kind of different books. What this did was get my mind of the actualy task and let it breath for a moment as I throughing to many logs on it and it was goind out. So after the chat we had I felt something coming back to me about a movie that I watched not to long ago. This movie was Foxcatcher and I would maybe stop reading now if you haven't watched the movie as I am going to spole the ending (sorry).
+
+You watched it yet?
+-------------------
+
+So the idea that I had when I had just left the cinema was actually a poster idea but I am going to adapt it into a book cover and if it turns out ok I might then turn it into a poster. So the idea that I have is to have the gun that John du Pont shot, which is a magmuin .44 long barrle. It won't be the gun but a yellow cut out almost if you understand me. Then for the smoke trail I was thinking of having it mak up a fox almost like caught the fox. This is the idea that then brought the genre about which I fell like it the thriller genre.
+
+So now that I have the genre I can now start branching out and two other covers todo. With the idea for the foxcatcher cover I felt like it should be yellow ans blue as that was the colours of there wrestling outfits. 
+
+
