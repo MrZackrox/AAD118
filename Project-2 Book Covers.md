@@ -1,9 +1,13 @@
 # AAD118
 
  Imaging and Data Visualisation
+ ------------------------------
+ 
+This modual is all about use starting to look at everything with wider eyes. We are starting to look at how everything can effect the outcome of a project from the type that is used to the placing of images. We are looking into photography and thinkg about how the subject matter can be affected by the angle of the photograph and so on. Then the next step it to look at illustrating book covers. With this we are even more so trying to look at ever aspects. As we want to keep the covers connected in some way this could be from the font to the colours used on them. Then we will be lastly looking at how to convay data in a visual way with inforgraphis. We will need to think how we can best represent the data in a clear and meaninful way so that the viewer is left with a clear understanding of the subject of the inforgraphic.  
  
  
  Research for Project 2- Ilustrated Book Covers.
+ -----------------------------------------------
  
  So for this porject I was a bit on the fence with it as I have all ready done this last year so I felt like I was back in that mindset. I couldn't get last years idea out of my head for a few day and now that I have actually read the Hobbit and am currently reading The Lord Of The Rings I fell that I could do it more justice than I did my first time. Though I fell that it would be hard for me to get away from what I went for with the covers last time. So I am going to just have to get on with a new idea.
  
