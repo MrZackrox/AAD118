@@ -50,14 +50,16 @@ What drew me to these book covers was that they looked so unique and interesting
 
 ![Holly Black](https://mgbookreviews.files.wordpress.com/2014/05/cover-curse-workers-series.png)
 
-
+With this next set of book covers I love the simplisity of them. You dont have much going on but it still says a lot interms of what the book is about. I have only heard about On The Road before an I fell that it says a lot about the book. Firstly you have the lines creating a road and then you have hte text and tringles at the end of it like its far away. I also like that there are three shapes as this could represnt the charachters that are in the books and the colour of them could be doing this also. Then when you look as them in whole you can clearly see that they are apart of a set and they all work well with being set in the same boundrys.
 
 ![Sally Carmichael](http://www.autostraddle.com/wp-content/uploads/2012/08/Sally-Carmichael.jpg)
 
-![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
+[Yuya Yoshida](https://www.behance.net/yuyayoshida)
+
+![Yuya Yoshida](https://m1.behance.net/rendition/modules/99781397/disp/49e708411041ec62437af991af66c2ba.jpg)
 
 ![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
 
 ![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
 
-![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
+So I have look at a lot of book over the last couple of weeks and I have started to think about different ways that I could make interesting covers for the books that I am doing
