@@ -18,8 +18,11 @@ You watched it yet?
 
 So the idea that I had when I had just left the cinema was actually a poster idea but I am going to adapt it into a book cover and if it turns out ok I might then turn it into a poster. So the idea that I have is to have the gun that John du Pont shot, which is a magmuin .44 long barrle. It won't be the gun but a yellow cut out almost if you understand me. Then for the smoke trail I was thinking of having it mak up a fox almost like caught the fox. This is the idea that then brought the genre about which I fell like it the thriller genre.
 
-So now that I have the genre I can now start branching out and two other covers todo. With the idea for the foxcatcher cover I felt like it should be yellow and blue as that was the colours of there wrestling outfits were. Then the only text on the covers would be the title and the author. The two other covers at the moment I want to do is one for the movie Nightcrawler and mayby a cover for Fargo. I am not so sure about Fargo as I cant think of a good thing to illustrate, but with Nightcrawler I fell like just having tire tracks on the cover would be cool.
+So now that I have the genre I can now start branching out and two other covers todo. With the idea for the foxcatcher cover I felt like it should be yellow and blue as that was the colours of there wrestling outfits were. Then the only text on the covers would be the title and the author. The two other covers at the moment I want to do is one for the movie Nightcrawler and mayby a cover for Fargo. I am not so sure about Fargo as I can not think of anything good to illustrate, but with Nightcrawler I fell like just having tire tracks on the cover would be cool.
 
-That enough of that now its time for some research, I fell like I am going to be a bit out of my depths as I don't really read thrillers but I am really just looking at the covers so it doesn't really matter.
+Thats enough of that now its time for some research, I fell like I am going to be a bit out of my depths as I don't really read thrillers but I am really just looking at the covers so that might really matter.
 
+As all ways I have went on a massive Google search to see what book covers I can draw inspiration from. Sense my genre is thriller I will focuse on book covers from there but will branch out to find book covers from serises. 
+
+![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
 
