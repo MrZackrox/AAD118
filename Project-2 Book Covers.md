@@ -22,7 +22,34 @@ So now that I have the genre I can now start branching out and two other covers 
 
 Thats enough of that now its time for some research, I fell like I am going to be a bit out of my depths as I don't really read thrillers but I am really just looking at the covers so that might really matter.
 
-As all ways I have went on a massive Google search to see what book covers I can draw inspiration from. Sense my genre is thriller I will focuse on book covers from there but will branch out to find book covers from serises. 
+As all ways I have went on a massive Google search to see what book covers I can draw inspiration from. Sense my genre is thriller I will focuse on book covers from there but will branch out to find book covers from serises. Below you can see why I have picked this book cover and if you can not its because theres a gun on the cover. I looked at this because it is similar to what I want to have for one of the book covers that I am doing. I like how plain it is everywhere else apart from the gun, I fell this tells the viewer that this story will centre around murders that happen by a gun man. I also like the colours used as they represent death, fear and will evoke this in the viewer.
 
 ![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
 
+This was one of the first serise of book covers that is found with a similar stlye in them. I really like these as I fell that they represent the books perfectly. The illustrations are the title of the books illustrated in a clever way, usually you don't see this, you just get an illustration from the book itself. So whats similar is the style of illustration and the use of vibrant colours to convey the tone of the book. I like the gritiness and roughness you get from the covers as this is tells you the story will be similar to this.
+
+![guillermo-del-toro](http://www.soundonsight.org/wp-content/uploads/2013/10/guillermo-del-toro-penguin-classic.jpg)
+
+What I like about this book cover is the type, as thats all there is. You could debate that they have took the type to another level and sort of turned it into an illustation. I like the crack that runs throught the word 'psycho' as to me it  can represent the crack in a a persons brain that makes them a psycho. 
+
+![Robert bloch](http://eyeondesign.aiga.org/wp-content/uploads/2014/12/Bloch-Psycho-B-1000.jpg)
+
+
+
+![Jo Nesbo](https://s-media-cache-ak0.pinimg.com/originals/91/6b/bb/916bbb095c423e901df75c813be8a217.jpg)
+
+![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
+
+![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
+
+![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
+
+![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
+
+![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
+
+![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
+
+![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
+
+![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
