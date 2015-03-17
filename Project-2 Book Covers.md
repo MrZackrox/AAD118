@@ -92,13 +92,13 @@ After a while the way the title was layed out started to annoy me so I stopped a
 
 The next version will just be the finial version of the cover as I could go on for while making changes and showing them.
 
-With Nightcrawller I have decided to go with a single tyre track going down the cover. As in the movie the carracther is speeding about in a car to set where he needs to be. Then on top of that I have decided that the colour of the tyre tracks should be in red as the car is this colour and it also has the conection with death and so on. As I said above I have decided to just jump in and get this started on illustrator.
+With Nightcrawler I have decided to go with a single tyre track going down the cover. As in the movie the carracther is speeding about in a car to set where he needs to be. Then on top of that I have decided that the colour of the tyre tracks should be in red as the car is this colour and it also has the conection with death and so on. As I said above I have decided to just jump in and get this started on illustrator.
 
-<img src="project_2/Nightcrawller_version_1.png" atl="Version one of Nightcrawller book cover"/>
+<img src="project_2/Nightcrawler_version_1.png" atl="Version one of Nightcrawler book cover"/>
 
-<img src="project_2/Nightcrawller_version_2.png" atl="Version two of Nightcrawller book cover"/>
+<img src="project_2/Nightcrawler_version_2.png" atl="Version two of Nightcrawler book cover"/>
 
-<img src="project_2/Nightcrawller_version_3.png" atl="Version three of Nightcrawller book cover"/>
+<img src="project_2/Nightcrawler_version_3.png" atl="Version three of Nightcrawler book cover"/>
 
 I was stuck for a day or two with an idea for the cover of Fargo but I remember a scene which I really liked. In the TV show there is a point were he runs into a wall to injure himself, on this wall is a motivational poster that he runs into. So I thought that it would make for a good cover idea as it would sutitly hint at some one lossing it and this will then play with the readers head. I am then thinking of having the backgound colour as orange as the main characther has this coat which he wears through out the TV show and it have became iconic. I am realising that I am now using the TV show instead of the movie and that is because they have both blurred into one as they follow the same storyline. I am using the creaters of the movie on the cover as the show took their idea and I fell that it would be stupid to put down FOX as the author.
 
