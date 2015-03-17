@@ -113,3 +113,17 @@ Below is the first version of the cover for Fargo and as you can see everything 
 <img src="project_2/fargo_version_1.png" atl="Version one of Fargo book cover"/>
 
 I had two other versions but I realised that the change in them is so small even I couldn't remember what was different when I looked at them when writing this. So I have decided to just leave them out and will just finish this on the finial version as I all ready know not much changes with the cover.
+
+So below you can now see the finial versions of the book covers that I have made. I am happy with some parts and not with some but I couldn't get a few things to work. With the Fargo cover I really liked the idea and I knew it was going to be hard to pull of and it was at certain parts. I like the way the fox looks but I would like it to look more smokey and the gun seems to be a bit funny but I tired my best to work it in. I fell over all I have done well on this cover and I have thought in a way were I interrupted the story in a visually unique way, so with this I am most pleased. As I have been told when you get good you can tell other people to make the cover for you.
+
+<img src="project_2/Foxcatcher_finial_version.png" atl="Finial version of Foxcatcher book cover"/>
+
+Then we come to Nightcrawler, this was the toughest of them all. I could not get it to sit right at all. As after I thought about intoducing the camera into the cover I wanted to have it there but it was a pain in butt to get it in. As you can see it is still not as smooth as it could be but I fell like it still gets the idea across. I like the whole feel of the cover as it also tells you a lot about the story in a clever way. I liked the blood splatter on the title so much it has won a place in the finial verson, to me it adds a layer to the title when reading it. I would like to come back and try a few different things with this cover and see if I could make it blend better.  
+
+<img src="project_2/Nightcrawler_finial_version.png" atl="Finial version of Nightcrawler book cover"/>
+
+With the Fargo cover everything went smoother then the rest, with me more and less nailing it on the first version. As I said before I had other versions but the changes were so small I couldn't find them. I is only in the last version that you see a big change, I added more fish that surrond the center fish as it creates more of a tunnel effect so that you are looking at the center fish. I added different blood splatters as when I thought about it, I wanted to create the effect like this was the wall he headbutted and dented the wall. I tried to recreate this with just changing the colour of the blood to make it darker. Over all I like this cover and I fell that it everthing works and I would not change anything in it.
+
+<img src="project_2/fargo_finial_version.png" atl="Finial version of Fargo book cover"/>
+
+I really liked this project and it has opend my eyes more to the posability that I could be some sort of an art director. Not to sound like an ass but I fell that I think about the thing as a whole and try to see what people will think when they see what ever it is I am doing. At the moment this is more prevolent as I am not that could with bringing my ideas to life so I could just get some else to do it for me.
