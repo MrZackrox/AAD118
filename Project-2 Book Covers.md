@@ -65,9 +65,36 @@ With this next set of book covers I love the simplisity of them. You dont have m
 
 ![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
 
-So I have looked at a lot of book covers over the last few weeks and I have started to think about different ways that I could make interesting covers for the books that I am doing. The idea for the foxcatcher cover has stayed the same but I have now thought about the two other cover and came up with ideas for them.
+Ideas
+-----
 
-With Nightcrawller I have decided to go with a single tyre track going down the cover. As in the movie the carracther is speeding about in a car to set where he needs to be. Then on top of that I have decided that the colour of the tyre tracks should be in red as the car is this colour and it also has the conection with death and so on.
+So I have looked at a lot of book covers over the last few weeks and I have started to think about different ways that I could make interesting covers for the books that I am doing. The idea for the foxcatcher cover has stayed the same but I have now thought about the two other cover and came up with ideas for them. So I started of with sketching this cover as I thought of it first andd it will be the most challenging to get right.
+
+As you can se bellow I have all ready started to think about the placement of the text so that it will be seen easily and its clear. I am going to use this to link the covers togeather as the illustrations will be completly different for each cover. I might make changes to it but at the moment it will looks a bit funny as it just a rough sketch. 
+
+Image
+
+When doing this cover I realised that it was not that much help once I got the font sorted out so I quickly finished it and went on to making them in illustrator. You might be thinking that I havn't thought about the other cover but I have and you can see that here below. I know that they are very rough but as before I thought it was better to just get into making them, so instead of having a lot of drawings I have a few versions that I will go through.
+
+Image
+
+So staying with Foxcatcher below you can see my first attempt at the cover. I fell at the moment that this does not look to bad I fell that the gun neeed some work but I really like the fox in the illustration. You can also see the better the idea that I was going for with the title and so on. I fell that this work and the font is strong and shouts at the reader almost.
+
+<img src="project_2/Foxcatcher_version_1.png" atl="Version one of Foxcatcher book cover"/>
+
+In this version I have not really done much with anything else apart from trying something different with thw fox. I fell that this is working but it needs more to it, I might try to make a smokey felling so it looks more like the gun has just fired.
+
+<img src="project_2/Foxcatcher_version_2.png" atl="Version two of Foxcatcher book cover"/>
+
+After a while the way the title was layed out started to annoy me so I stopped and thought for a second to see what I could do with it. After a while I realised that I could fit it on one line underneath the title, so this is what I have done. I think it works better this way but I fell that another font might look better I will report back and see. As I just realised the font I am using only has capital letters so the authors names can not be in lowercase. I have then add more to the fox and for me it is starting to get there I will add more and maybe take away some in certain places. I still need to mess about with gun but I fell that it looks ok the way it is, i might just take away the lines that are around it.
+
+<img src="project_2/Foxcatcher_version_3.png" atl="Version three of Foxcatcher book cover"/>
+
+The next version will just be the finial version of the cover as I could go on for while making changes and showing them.
+
+With Nightcrawller I have decided to go with a single tyre track going down the cover. As in the movie the carracther is speeding about in a car to set where he needs to be. Then on top of that I have decided that the colour of the tyre tracks should be in red as the car is this colour and it also has the conection with death and so on. As I said above I have decided to just jump in and get this started on illustrator.
+
+
 
 I was stuck for a day or two with an idea for the cover of Fargo but I remember a scene which I really liked. In the TV show there is a point were he runs into a wall to injure himself, on this wall is a motivational poster that he runs into. So I thought that it would make for a good cover idea as it would sutitly hint at some one lossing it and this will then play with the readers head. I am then thinking of having the backgound colour as orange as the main characther has this coat which he wears through out the TV show and it have became iconic. I am realising that I am now using the TV show instead of the movie and that is because they have both blurred into one as they follow the same storyline. I am using the creaters of the movie on the cover as the show took their idea and I fell that it would be stupid to put down FOX as the author.
 
