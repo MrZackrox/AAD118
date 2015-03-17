@@ -16,11 +16,14 @@ I was sitting there in class doing some searching of genres and other books that
 You watched it yet?
 -------------------
 
-So the idea that I had when I had just left the cinema was actually a poster idea but I am going to adapt it into a book cover and if it turns out ok I might then turn it into a poster. So the idea that I have is to have the gun that John du Pont shot, which is a magmuin .44 long barrle. It won't be the gun but a yellow cut out almost if you understand me. Then for the smoke trail I was thinking of having it mak up a fox almost like caught the fox. This is the idea that then brought the genre about which I fell like it the thriller genre.
+So the idea that I had when I had just left the cinema was actually a poster idea but I am going to adapt it into a book cover and if it turns out ok I might then turn it into a poster. So the idea that I have is to have the gun that John du Pont shot, which is a magmuin .44 long barrle. It won't be the gun but a yellow cut out almost if you understand me. Then for the smoke trail I was thinking of having it mak up a fox almost like caught the fox. This is the idea that then brought the genre about which I fell like it the thriller genre. So now that I have the genre I can now start branching out and start thinkng about the two other covers I have todo. 
 
-So now that I have the genre I can now start branching out and two other covers todo. With the idea for the foxcatcher cover I felt like it should be yellow and blue as that was the colours of there wrestling outfits were. Then the only text on the covers would be the title and the author. The two other covers at the moment I want to do is one for the movie Nightcrawler and mayby a cover for Fargo. I am not so sure about Fargo as I can not think of anything good to illustrate, but with Nightcrawler I fell like just having tire tracks on the cover would be cool.
+With the idea for the foxcatcher cover I felt like it should be yellow and blue as that was the colours of there wrestling outfits were. Then the only text on the covers would be the title and the author I have all ready started to look at different fonts that would work well on the front cover but more importantly it will have a tone of thiller in it. 
 
-Thats enough of that now its time for some research, I fell like I am going to be a bit out of my depths as I don't really read thrillers but I am really just looking at the covers so that might really matter.
+The two other covers at the moment I want to do is one for the movie Nightcrawler and mayby a cover for Fargo. I am not so sure about Fargo as I can not think of anything good to illustrate, but with Nightcrawler I fell like just having tire tracks on the cover would be cool. I will go more into depth when I think about these two covers in a bit but for now its time for some research, I fell like I am going to be a bit out of my depths as I don't really read thrillers but I am really just looking at the covers so that might really matter.
+
+Research
+--------
 
 As all ways I have went on a massive Google search to see what book covers I can draw inspiration from. Sense my genre is thriller I will focuse on book covers from there but will branch out to find book covers from serises. Below you can see why I have picked this book cover and if you can not its because theres a gun on the cover. I looked at this because it is similar to what I want to have for one of the book covers that I am doing. I like how plain it is everywhere else apart from the gun, I fell this tells the viewer that this story will centre around murders that happen by a gun man. I also like the colours used as they represent death, fear and will evoke this in the viewer.
 
@@ -62,4 +65,10 @@ With this next set of book covers I love the simplisity of them. You dont have m
 
 ![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
 
-So I have look at a lot of book over the last couple of weeks and I have started to think about different ways that I could make interesting covers for the books that I am doing
+So I have looked at a lot of book covers over the last few weeks and I have started to think about different ways that I could make interesting covers for the books that I am doing. The idea for the foxcatcher cover has stayed the same but I have now thought about the two other cover and came up with ideas for them.
+
+With Nightcrawller I have decided to go with a single tyre track going down the cover. As in the movie the carracther is speeding about in a car to set where he needs to be. Then on top of that I have decided that the colour of the tyre tracks should be in red as the car is this colour and it also has the conection with death and so on.
+
+I was stuck for a day or two with an idea for the cover of Fargo but I remember a scene which I really liked. In the TV show there is a point were he runs into a wall to injure himself, on this wall is a motivational poster that he runs into. So I thought that it would make for a good cover idea as it would sutitly hint at some one lossing it and this will then play with the readers head. I am then thinking of having the backgound colour as orange as the main characther has this coat which he wears through out the TV show and it have became iconic. I am realising that I am now using the TV show instead of the movie and that is because they have both blurred into one as they follow the same storyline. I am using the creaters of the movie on the cover as the show took their idea and I fell that it would be stupid to put down FOX as the author.
+
+
