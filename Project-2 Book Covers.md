@@ -94,9 +94,15 @@ The next version will just be the finial version of the cover as I could go on f
 
 With Nightcrawler I have decided to go with a single tyre track going down the cover. As in the movie the carracther is speeding about in a car to set where he needs to be. Then on top of that I have decided that the colour of the tyre tracks should be in red as the car is this colour and it also has the conection with death and so on. As I said above I have decided to just jump in and get this started on illustrator.
 
+So you can see below the basic idea that I have had for the cover. I say basic but it has a strong connection with the movie so I fell that it being simple is a plus. You can see at this version that I have stay with the old layout of the title and author. I forgot to draw a point to this on the Foxcatcher cover but the backgrounds have a grainy effect put over it to give them bit more grit.
+
 <img src="project_2/Nightcrawler_version_1.png" atl="Version one of Nightcrawler book cover"/>
 
+I realised that I could start to mess with the tyre tracks so on this version I tried to see if I could make it look like the car had taken of fast and skidded at the start. I done this as he drove about really fast throughout the movie and this is another important part of the movie. Then here I still haven't changed the layout of the title and so on.
+
 <img src="project_2/Nightcrawler_version_2.png" atl="Version two of Nightcrawler book cover"/>
+
+Now here I have made another change and added a camera as this is one of the biggest parts of the movie. I had thougth about this but put it away and forgot about it, luckly not for ever. So I thought it would look cool it the tyre tracks were coming out of the camera as he films a good bit from his car in a certain scene. At the moment however I fell that it cant really be seen so I am going to work on that and I have made the tyre tracks a good bit smaller so that it fits with in the camera. I have now also changed the title to the new layout an I fell that it works well with this cover. I have also mad another change in this version and that it the font, I went with a different on so that I can have the names of the author in lower case. I fell that it works a lot better this way even though I really like the other font.
 
 <img src="project_2/Nightcrawler_version_3.png" atl="Version three of Nightcrawler book cover"/>
 
