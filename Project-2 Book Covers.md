@@ -57,13 +57,9 @@ With this next set of book covers I love the simplisity of them. You dont have m
 
 ![Sally Carmichael](http://www.autostraddle.com/wp-content/uploads/2012/08/Sally-Carmichael.jpg)
 
-[Yuya Yoshida](https://www.behance.net/yuyayoshida)
+So the nest book that I found were by a guy called [Yuya Yoshida](https://www.behance.net/yuyayoshida). When I first saw the books I took no real notice of them and just scrolled past them, then on the way back up I stopped and saw that they had so much to them. I just love the fact that he has turned the word maze into a visual representation of itself. I like the fact that they are all very similar to eachother and this was one of the covers that made me start think about the layout of the title and so on. As you can see that on these cover the tiles is set out in a way the you are lead through the cover and into the illustration. As now you are then thrown into a maze and you have to deciffere what it is saying, as it says more than one thing. Then on top of this I find that the colour scheme is so simple but still effective and works so well.  
 
 ![Yuya Yoshida](https://m1.behance.net/rendition/modules/99781397/disp/49e708411041ec62437af991af66c2ba.jpg)
-
-![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
-
-![Jo Nesbo](http://www.tatteredcover.com/files/tatteredcover/9780307960474.jpg)
 
 Ideas
 -----
