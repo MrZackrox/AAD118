@@ -108,4 +108,8 @@ Now here I have made another change and added a camera as this is one of the big
 
 I was stuck for a day or two with an idea for the cover of Fargo but I remember a scene which I really liked. In the TV show there is a point were he runs into a wall to injure himself, on this wall is a motivational poster that he runs into. So I thought that it would make for a good cover idea as it would sutitly hint at some one lossing it and this will then play with the readers head. I am then thinking of having the backgound colour as orange as the main characther has this coat which he wears through out the TV show and it have became iconic. I am realising that I am now using the TV show instead of the movie and that is because they have both blurred into one as they follow the same storyline. I am using the creaters of the movie on the cover as the show took their idea and I fell that it would be stupid to put down FOX as the author.
 
+<img src="project_2/fargo_version_1.png" atl="Version one of Fargo book cover"/>
 
+<img src="project_2/fargo_version_2.png" atl="Version two of Fargo book cover"/>
+
+<img src="project_2/fargo_version_3.png" atl="Version three of Fargo book cover"/>
