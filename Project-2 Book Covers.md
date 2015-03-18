@@ -66,13 +66,13 @@ Ideas
 
 So I have looked at a lot of book covers over the last few weeks and I have started to think about different ways that I could make interesting covers for the books that I am doing. The idea for the foxcatcher cover has stayed the same but I have now thought about the two other cover and came up with ideas for them. So I started of with sketching this cover as I thought of it first andd it will be the most challenging to get right.
 
-As you can se bellow I have all ready started to think about the placement of the text so that it will be seen easily and its clear. I am going to use this to link the covers togeather as the illustrations will be completly different for each cover. I might make changes to it but at the moment it will looks a bit funny as it just a rough sketch. 
+As you can se bellow I have all ready started to think about the placement of the text so that it will be seen easily and its clear. I am going to use this to link the covers together as the illustrations will be completly different for each cover. I might make changes to it but at the moment it will looks a bit funny as it just a rough sketch. 
 
-Image
+<img src="project_2/sketch_1.jpg" atl="Sketch for book covers"/>
 
 When doing this cover I realised that it was not that much help once I got the font sorted out so I quickly finished it and went on to making them in illustrator. You might be thinking that I havn't thought about the other cover but I have and you can see that here below. I know that they are very rough but as before I thought it was better to just get into making them, so instead of having a lot of drawings I have a few versions that I will go through.
 
-Image
+<img src="project_2/sketch_2.jpg" atl="Sketch for book covers"/>
 
 So staying with Foxcatcher below you can see my first attempt at the cover. I fell at the moment that this does not look to bad I fell that the gun neeed some work but I really like the fox in the illustration. You can also see the better the idea that I was going for with the title and so on. I fell that this work and the font is strong and shouts at the reader almost.
 
