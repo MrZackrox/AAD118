@@ -126,7 +126,7 @@ I really liked this project and it has opend my eyes more to the posability that
 
 I almost forgot to put these in. I have done only the spine for foxcatcher as they will more and less be the same for the other covers just the colour and so on will change. Below you can see that I have made up two different spines and I was stuck for a while at which one I liked more.
 
-<img src="project_2/spin_version_1.png" atl="Spin version 1 for book cover"/>
+<img src="project_2/spin_version_2.png" atl="Spin version 1 for book cover"/>
 
 As I was thinking that both do there job well I kept the foxcatcher big in both as I wanted the word like on the cover to almost be shouting at you and giving of an intense vibe. When it came to adding the author bit I mess about with it, I like both the spines equaly and I still can't see fault in them. In the one above I like how it leads on after the title and in the one below I like that it uses more space and fills up the same amount as the title.
 
