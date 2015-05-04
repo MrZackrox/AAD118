@@ -111,11 +111,11 @@ When I had got my head out of the clouds. I thought of an idea that I really lik
 
 Below you can see the quick sketchs that I done before I went on into Illustrator. I had my idea more and less thoughout as you can see below. The then vs now idea came pretty quickly to me as its the first thing I wrote and it then effected everything after that.
 
+You can see its just me getting my ideas down quickly before the fly of into the void. I like most of the ideas that I have down on this page and most make it to the finial inforgraphic. I would like to say sorry for it being in red, sadly it was the first pen I grab and I just started to scribble. Then I tried to make it 3D but I realised I coudn't test it out as I didnt have 3D glasses.
+
 <img src="project_3/Sketch_1.jpg" atl="Sketch for infographic"/>
 
-<img src="project_3/Sketch_2.jpg" atl="Sketch for infographic"/>
-
-I wanted to have the globe some were at the top as this inforgraphic is about world population facts. A globe will visually tell that viewer what this inforgraphic is about. So I was thinking of having the globe in the middle and then the title rapping around it. You can sort of see this in the photo below.
+In the sketchs you can see I wanted to have the globe some were at the top as this inforgraphic is about world population facts. A globe will visually tell that viewer what this inforgraphic is about. So I was thinking of having the globe in the middle and then the title rapping around it. You can sort of see this in the photo below.
 
 In this photo you can see the then vs now style that I was going to go for. I wanted to have it separated down the middle. I would then have a fact from years ago on the left side. On the right we would see how much the fact has change in the number of years passed.
 
@@ -123,9 +123,15 @@ For the colours I wanted to go for green and blue. I choose these colours, as th
 
 You can see in the below photo the first attempts at bringing my idea to life. At the time I liked were I was going with the feel of the infographic. I know there is not much there. Though you get to see the ideas that I had come together. 
 
-I like the title part so far of the inforgraphic as is says all what the infographic has to offer.
+<img src="project_3/try_1.jpg" atl="try for infographic"/>
+
+I like the title part so far of the inforgraphic as is says all what the infographic has to offer. In this image I am just trying to get some ideas about the sections out of my head and onto paper. There isn't much here as I only done a few that I just couldn't completely do of the top of my head.
+
+<img src="project_3/Sketch_2.jpg" atl="Sketch for infographic"/>
 
 So this is the next and last time. That I remembered it would be a good idea to save what I was doing as a draft. As you can see at this stage I am still with the old idea, and looking back at it I wish I could have gotten it to work. 
+
+<img src="project_3/try_2.jpg" atl="try for infographic"/>
 
 So the to section has more and less stayed the same with just a few new additions to it. These additions just hep people understand what each graphic is worth.
 
