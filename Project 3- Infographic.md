@@ -149,3 +149,5 @@ It isn’t till I start to move on when I realise that my idea needs to be tweak
 
 <img src="project_3/Sketch_3.jpg" atl="Sketch for infographic"/>
 
+<img src="project_3/try_3.jpg" atl="Finial for infographic"/>
+
