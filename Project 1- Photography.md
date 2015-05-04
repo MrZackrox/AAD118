@@ -3,6 +3,8 @@
  Imaging and Data Visualisation
  
  
+ 
+ 
  Research for Project 1- Macro and Micro Photography.
  
  To start of this project I done a  healthy bit of research into other photographers in the field of each category. I was happy when I heard that we were doing a photography project as I love to take photographs given that I don't do it as far often as I should. I would like to start at least once a week going out and taking photographs of nature and other subjects that capture my attention. As I fell that this will give me a better eye in choosing what goes into the end "frame" of what ever I am doing. What I mean by this is that it doesn't matter what you are doing you have to see how everything acts and mixes with each other this can be a piece of text to the position of the photograph that you take.
@@ -17,6 +19,21 @@ as you can see they are the same more and less the same. The only reason I say t
 
 Any ways that is just a thought that I had on the matter and I keep forgetting to bring it up when I see you, so I thought this would be as a good any place to bring it up.
 
+Before I go on at write about the type of photographs that we are taking I think it would be best to brush up on our photography knowledge. So there are many components that make a good photograph but it really depends on what effects you are trying to get.
+Composition is one of the more conmen ones that you will us to make your photograph have that impact that you want. There are many different things that you can do with the composition but here are just a few that I know of;
+
+Rule of thirds- So this is really what composition is but you can do different things with it to get different effects. As you can see in the image below this has been set up using the rule of thirds, the red lines is what you would see on the view finder of you camera if you set it up to show it. Though after a while if you get us to it you can start to just tell were to position the object in the photograph. 
+
+![Rule of Thirds](http://mrs-cook.weebly.com/uploads/2/3/0/6/23067164/____7388181_orig.jpg)
+
+So with this photograph they have used the rule of thirds to add more to the photograph. As you are now thinking what is the dear looking at. Then on the y axis you have it set up so that you can see more of the sky than the ground. I fell this is just because it look more interesting and that the object stand out more in the depth of the sky.
+
+So when you start to us the composition more you can start to us it in interesting ways to create depth and make the photograph more interesting. The photograph above is just sticking to the basics of the rule of thirds. So you can start to use it to create even more interesting shots and then you can add a shallow focus and so on to highlight the main part of the photograph. Like in this photograph below, were you have a basic example of what you can do with using different focus point.
+
+![Rule of Thirds](http://www.thephotoargus.com/wp-content/uploads/2009/10/focus3.jpg)
+
+There is a lot that you can do in photography to make you photographs that bit nicer and interesting even if the viewer can't tell what you have done subconsciously they will like it better.
+
 Macro (Landscape)
 =================
 
@@ -25,6 +42,8 @@ With this adventure rightly on it way I started to look for photographers that w
 So I first got this filling when looking at a photographer named [Mike Curry](http://www.mikecurryphotography.com/portfolio). I fell like he is not the most known photographer but he has really nice photos up on his website.
 
 The first one which caught my attention was a photograph he took of the millennium Dome with a long exposure. Some how I all way find my way back to long exposure photography. Well any ways as you can see the image it sell is very chaotic but that's what I like about it you have this sense of excitement in the photograph that you would not get without a longer exposure. Saying that it is not overly long I would say only about 4 seconds at the most as if any long things would start you burn out. Then this is what give you that sense of craziness as you can still clearly see the dome and make out some of the buildings but you have that haze over laying it. I just like the difference in the photos as most would just be happy with shooting it with a normal exposure but I fell like this give of the vibe that London is a busy environment (which it is).
+
+![Rule of Thirds](http://www.thephotoargus.com/wp-content/uploads/2009/10/focus3.jpg)
 
 I also like this photo as it is similar to what I want to achieve with my chosen subject for my photographs. with this photograph you fell like you are looking through a portal into another world with the board of leaves that you have around the photograph. Not only this the subject is  centered in the photograph on the x axis which shows it importance in the photograph. Though as I have said it is not completely centered in the photograph with the y axis being different. You have more of the sky in the image, now why has he chosen this who knows. It might be to show the height of the structure how it nearly the sky and towers over its natural surroundings, well its that's one reason why he might have I could spend longer looking at this guy and I might come back and wright about another photograph of his but I fell the ship a calling to start with the next photographer that I have in ready.
 
