@@ -131,6 +131,12 @@ I like the title part so far of the inforgraphic as is says all what the infogra
 
 So this is the next and last time. That I remembered it would be a good idea to save what I was doing as a draft. As you can see at this stage I am still with the old idea, and looking back at it I wish I could have gotten it to work. 
 
+Below you can see when I started to sketch out the layout of the infographic. I realised that, it would need to be broken up into section like in the ones I saw during the research. So I done a quick layout just so I wasn't moving everything about in Illustrator.
+
+<img src="project_3/Sketch_3.jpg" atl="Sketch for infographic"/>
+
+In the end I had any way as I thought that some things shouls be grouped togeather and some should be more towards that bottom. The reason for this is because they were add on facts from the main topic.
+
 <img src="project_3/try_2.jpg" atl="try for infographic"/>
 
 So the to section has more and less stayed the same with just a few new additions to it. These additions just hep people understand what each graphic is worth.
@@ -145,9 +151,25 @@ So this is were this idea got binned for just facts about the world population n
 
 Writing about this older version now, I feel a bit silly as I probably could have gotten it to work but I just didn’t try hard enough with it.
 
-It isn’t till I start to move on when I realise that my idea needs to be tweaked a little.
+It isn’t till I start to move on when I realise that my idea needs to be tweaked a little. 
 
-<img src="project_3/Sketch_3.jpg" atl="Sketch for infographic"/>
+The Finial Infographic
+----------------------
+
+Below you can see what I finial went with in the end. I think it turned out ok and like the look of it more that what I was doing before. I am glade that I decided to get rid of the then vs now act, even still I wouldn't have minded seeing it finised.
 
 <img src="project_3/try_3.jpg" atl="Finial for infographic"/>
 
+I would say that it looks a good bit different from the previous versions, deffently for the better. As you saw I decided to break it into bigger sections which helps a lot with the whole look of the infographic. As when everything was a group and had a different background colour it felt over crowded. 
+
+Everything now has room to breath and you are able to digest the information easier. From the top. I like the starting part even though it hasn't really changed much. I did add the and extra part to the title and I feel that it works better and it roles of the tounge. You also have the thinge mic bob that tells you what everything equals and it is small enought to stay out of sight. Just enough so that you can still read it.
+
+The next section is the biggest as everthing in it is the main facts that the inforgraphic is about. I done that as it made the whole thing flow better. Before when I had them all in sections it was to choppy and disrupeted you when reading down. Now you have this slow gradation to the darker colour. I like the lay out of the graphics in the section. I fell that everything is clear and understandable. I jokenly done the baby part but I feel that it looks like it should be there so I kept it. As with the colour I feel that there is a nice flow to the information it slowly goes through each fact. What helps this is that each one has room to breath. 
+
+The next section is just an interesting fact which you don't really have to ponder about. I like the simplicity of this part as you can see that it one person and five phones. This is visualy what the text is trying to say to the viewer.
+
+Then with the last section I had I real issue with getting it to work. Until it clicked that I could use a trolly. I like the flow of this section as its the only one thats laid out differently. I did this because I has a bit to much information to put in this section and I feel that it would have looked weird if I laid it out like the other sections. This then in return brings the flow of information to an end and presents the reader with a clear ending.
+
+Then over all things. I like the use of white for the colour of the text as its easy to read against the colour of the background. I then chose red to highlight key parts of the information which I think works. As when you read it you take in what is in red a bit more and it stays with you. It makes a nice contrast as the other colours are earthy and this is a contrast to them.
+
+As I have said over all I like the finial look of the infographic and I feel that everything works in harmony with eachother. I really liked this project as it has  opened up new possibility of how I see data. I would like to carry this on and do other project were I try a more minimal approch and just try to us typography to convey the information.
