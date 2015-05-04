@@ -76,6 +76,11 @@ I really like this infographic I fell that it is easy to understand and you can 
 
 The whole feel of the infographic works for me, you have these nice colours that were used and the don't clash with eachother so they are easy on the eyes. You then have the use of the text throughout the infographic which looks nice and is prositioned well beside the graphic that they are explaining. I like the use of different colours of words to draw attention to certain things more. I was thinking of using red and I shall as seeing this it makes what is highlited stand out the most.
 
+This next one I just like the look of it and I think it as a whole works perfectly, you can see it below.
+
+I just like the simplicity of the layout for this infographic and you really coudld use this idea to show case a lot of other world population facts. I love how it show the chaos that might happen in the sky with the crazy lines that are  around the centre graphic
+![Airbus Infographic](http://www.industryweek.com/site-files/industryweek.com/files/uploads/2013/09/airbus%20infographic.jpg)
+
 Bit about my own
 
 The next couple of days after hearing what the project was, ideas were swirling about my head in a never-ending loop. Some got thrown out of the loop as they were above the realm of what I could do.
