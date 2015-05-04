@@ -2,7 +2,7 @@
 
  Imaging and Data Visualisation
  
- 
+ If you want to see my images you can go to my [flickr] (https://www.flickr.com/photos/117329603@N05/collections/72157650863596651/) page were there are. I have also wrote a bit about them in the description most of them, well may be just the finial ones.
  
  
  Research for Project 1- Macro and Micro Photography.
@@ -71,28 +71,49 @@ Then the last landscape photographer that I am going to look at is [Charlie Wait
 
 I picked to of his photographs that I liked and this was hard once again but I managed. So with this photograph below I really like it because of it simplicity all it is is a photograph of a spiral stair case. Though you have this divide with the piller of the stairs running down the center of the photograph. Then on top of this I like the way he has only chosen to show a bit of the stairs and left out the floor. As to me I fell like this creates a tension in the photograph, with the stairs spiraling up to the light and spiraling down into the abyss.
 
-Then the last photograph that I am going to look at of his is the one I like the most. As I fell that he has transformed this structure into a colossal mountain with the way he has captured it. He has took it from a low angle and you have the peak of the structure reaching to the blue of the sky just the way any mountain does. Then I love how he has separated the photograph into half with the use of the wall.
+![Ansel Adams](http://d2whyjh24t36y9.cloudfront.net/gallery/lupe/010038.jpg)
+
+Then the last photograph that I am going to look at of his is the one I like the most. As I fell that he has transformed this structure into a colossal mountain with the way he has captured it. He has took it from a low angle and you have the peak of the structure reaching to the blue of the sky just the way any mountain does. Then I love how he has separated the photograph into half with the use of the wall. Looking back at these photographs I just need. I muct mention the tones of colour in these photographs are just memorising and rich. The blue door in contrast with the crispness of the wall. Then you have the looming shadows of clouds boardering the wall which open up into a peakness of hope and prostarity.
+
+![Ansel Adams](http://d2whyjh24t36y9.cloudfront.net/gallery/lupe/010002.jpg)
 
 Micro
 ====
 
 I know that we are taking photographs but I fell that what I am about to talk about next is tied in with Microphotography. When I was doing some searching I remembered that most movies with complicated sets our actually miniature than real life. I actually can’t believe that I haven’t thought about this more often as one, I found really funny was that The Lord Of The Rings sets, and were miniature. I know for some reason it never clicked in my brain that there wasn't actually Barad-dur (the tower with the eye) in real life. I am not saying that I though Gondor was an actual place but I never just thought about it. I just wanted to bring up the level of micro filmography that goes into these fantastic movies and you sort of forget about it when watching it.
 
+![Ansel Adams](http://ak-hdl.buzzfed.com/static/2013-10/enhanced/webdr02/7/15/enhanced-buzz-2209-1381173447-4.jpg)
+
 I really just wanted to bring that up as in the movies the sets seem so big but yet they are tiny and I fell that you could so some nice microphotography around them. There is more than just Lord Of The Rings but I am reading it at the moment so I am a fan boy for the mean time.
+
+![Ansel Adams](http://ak-hdl.buzzfed.com/static/2013-10/enhanced/webdr05/7/15/enhanced-buzz-13458-1381173489-8.jpg)
 
 So when I was searching microphotography I was trying my dam hardest to get a ways from the usual shots of insects as I have seen them so much I am now starting to wonder what else people are doing with this type of photography.
 
 Then I remembered about people taking photographs of snowflakes and this started me on a down slope of photographers. Though I feel like I have all ready wrote about one of them so I will just write about this new guy that I have found. Sadly I cannot find an actual website for him but it seems that his photographs have gotten reconnection for being unique and interesting. Ok so with a bit more searching I have found the place where he show cases his work, firstly the guy that I am looking at is called Andrew Osokin. What I like about this photographer is that he changes it up in terms of what he is taking a photograph of. He got exposure from taking photographs of frost/ snowflakes and they are just amazing. I love this photograph in particular as it just captures winter for me. I do not own a car but it reminds me of the early morning when getting to school in winter, you all ways had to have the warm water ready for the windows. There is much going on in the photograph with the setting up of it as the subject does all that work, you just need to get close to it to show the detail of it.
 
-Then this next photograph is of insects but it's not like the normal ones you get. What I like about this photograph most is the fact that it captures the snails in the home environment. I just feels like someone getting helped over a wall by a friend, which we as kids us to do daily. Then I like the different tonnes of colour that are in the photograph with the snails being in such contrast to what they are on. Then you have the use of focus in the photograph that is used perfectly as you can only really focus your eyes on the snails in the front. You then get this nice range of colour in the background that subtly says nature to me with the hint of red, green and brown.  
+![Andrew Osokin](http://i.telegraph.co.uk/multimedia/archive/02433/frost-big_2433027k.jpg)
 
-Then the next photograph I like because it is all round a fantastic photograph. What I like most about this photograph is the use of focus that is on the flower. To me this makes the photograph all most look like a painting with the sun penetrating the petals of the flower. Then I like the use of composition to show a tiny bit more of other flowers to ground the photograph.
+Then this next photograph is of insects but it's not like the normal ones you see. What I like about this photograph most is the fact that it captures the snails in the home environment. I just feels like someone getting helped over a wall by a friend, which we as kids us to do daily. Then I like the different tonnes of colour that are in the photograph with the snails being in such contrast to what they are on. Then you have the use of focus in the photograph that is used perfectly as you can only really focus your eyes on the snails in the front. You then get this nice range of colour in the background that subtly says nature to me with the hint of red, green and brown.  
+
+![Andrew Osokin](http://en.www.lensart.ru/picture-pid-261c3.htm?ps=14)
+
+Then the next photograph I like because it is all round a fantastic photograph. What I like most about this photograph is the use of focus that is on the flower. To me this makes the photograph all most look likes a painting with the sun penetrating the petals of the flower. Then I like the use of composition to show a tiny bit more of other flowers to ground the photograph.
+
+![Andrew Osokin](http://en.www.lensart.ru/picture-pid-1d201.htm?ps=14)
 
 So I have all ready wrote about another one of his frost photographs but I just have to show this one as it is even better than the one I have all ready wrote about. I like that the frost is almost painting an image as to me I can see a rocky scenery with some trees in it. Then on the other hand it could a raging river after flash floods and its tearing the trees out from the homes. Or it might just be forest.  
 
-This is a random photograph that I found on line but I really like it as the photographer is playing with the depth of the photograph. The for-ground and the back-ground or out of focus. You would do this if you want the views eyes to focus on a certain part of the photograph. In this case it is the top of the work breaking the surface of the water. 
+![Andrew Osokin](http://en.www.lensart.ru/picture-pid-2c0d3.htm?ps=14)
 
-I have realised that we are meant to be taking photographs of building so I thought I would look at a few of close up shots of buildings. The photograph below is something that I would like to achieve in my own photographs. As I have been up many times to Scrabo Tower and I know that the front door would look nice shot like this. There is even a view window that might look good if I line them up right. So I realised that the photograph that I was going to write about had a massive but subtle watermark on it. I have tried to find a similar one to it but this is the best that I could do, though I feel that this photograph would be better centred. This was taken by Gertygiggles, who is a budding photographer.
+This is a random photograph that I found on line but I really like it as the photographer is playing with the depth of the photograph. The for-ground and the back-ground or out of focus. You would do this if you want the views eyes to focus on a certain part of the photograph. In this case it is the top of the fork breaking the surface of the water. 
 
+![Just of Google](https://experimental223.files.wordpress.com/2012/05/pork.jpg)
 
+I have realised that we are meant to be taking photographs of building so I thought I would look at a few of close up shots of buildings. The photograph below is something that I would like to achieve in my own photographs. As I have been up many times to Scrabo Tower and I know that the front door would look nice shot like this. There is even a view window that might look good if I line them up right. So I realised that the photograph that I was going to write about had a massive but subtle watermark on it. I have tried to find a similar one to it but this is the best that I could do, though I feel that this photograph would be better centred. This was taken by [Gertygiggles] (https://gertygiggles.wordpress.com/2013/01/26/cees-fun-photo-challenge-wood/), who is a budding photographer.
+
+![Gertygiggles](https://gertygiggles.files.wordpress.com/2013/01/old-door-ledbury-church.jpg)
+
+Finial Words
+------------
 
