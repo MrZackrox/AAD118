@@ -60,12 +60,21 @@ The book also looks extremely nice. The cover for the book just says what is wai
 
 ![Speak Images 2015](https://m1.behance.net/rendition/modules/170107625/max_1200/107b7420496cad6c64c8823ca655051d.jpg?cb=1945039031)
 
-I then went from this project to another one that is again, epic. It is a web based project that is more tied to visually representing facts. This project is called Troy Davis- I am alive. You get brought to a page were you are immediately brought into the experience of the whole project as the story starts as soon as the page loads. You then have to interact with page to carry on the story. 
+I then went from this project to another one that is again, epic. It is a web based project that is more tied to visually representing facts. This project is called [Troy Davis- I am alive](https://www.behance.net/gallery/7928869/Troy-Davis-I-am-alive). You get brought to a page were you are immediately brought into the experience of the whole project as the story starts as soon as the page loads. You then have to interact with page to carry on the story. 
 
 You then go through the story of Davis in a visually impactive drawn story. The whole time you are on edge, as you are getting brought through a mans life which ended in him being sentenced to death for a crime he did not commit.
 
 I love the simplicity of the drawing yet the have so much impact in them its crazy. I feel that this is through the use of colour that gives them this impact. It could be because it black vs white that in return represents good vs evil. This is then what this whole story is about. That now person should be sentenced to death for a crime that they have committed.  The other nice touch to the project is using his writing as a tool to signify the when the death penalty was used wrongly. 
 
+![Troy Davis- I am alive](https://m1.behance.net/rendition/modules/61289807/disp/e9330ac99dc414ee86ad99cc487ab2f5.jpg?cb=1945039031)
+
+I then started to look at just normal inforgraphic, though at this time I all ready had a good idea of what I was going for. Below you can see one of the first  few infographics that I found. It is to do with food waste as I am going to have a section of my infographic look at this problem that is getting worse as we are becoming more.
+
+![Learn Six Sigma Project](http://fc08.deviantart.net/fs70/f/2013/018/0/a/food_waste_infographic_by_roshipotoshi-d5rujzy.png)
+
+I really like this infographic I fell that it is easy to understand and you can follow what you are being told easily enough with the use of the graphics that are used throughout it. What I am seeing here is that they have broke up there infographic into section by using a single dashed line. I all ready have an idea of what I want to do. But this seems like an other way that I could have done it with it being effective as well. 
+
+The whole feel of the infographic works for me, you have these nice colours that were used and the don't clash with eachother so they are easy on the eyes. You then have the use of the text throughout the infographic which looks nice and is prositioned well beside the graphic that they are explaining. I like the use of different colours of words to draw attention to certain things more. I was thinking of using red and I shall as seeing this it makes what is highlited stand out the most.
 
 Bit about my own
 
