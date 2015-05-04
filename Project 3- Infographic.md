@@ -111,9 +111,9 @@ When I had got my head out of the clouds. I thought of an idea that I really lik
 
 Below you can see the quick sketchs that I done before I went on into Illustrator. I had my idea more and less thoughout as you can see below. The then vs now idea came pretty quickly to me as its the first thing I wrote and it then effected everything after that.
 
-<img src="project_2/sketch_1.jpg" atl="Sketch for infographic"/>
+<img src="project_3/sketch_1.jpg" atl="Sketch for infographic"/>
 
-<img src="project_2/sketch_2.jpg" atl="Sketch for infographic"/>
+<img src="project_3/sketch_2.jpg" atl="Sketch for infographic"/>
 
 I wanted to have the globe some were at the top as this inforgraphic is about world population facts. A globe will visually tell that viewer what this inforgraphic is about. So I was thinking of having the globe in the middle and then the title rapping around it. You can sort of see this in the photo below.
 
@@ -141,5 +141,5 @@ Writing about this older version now, I feel a bit silly as I probably could hav
 
 It isn’t till I start to move on when I realise that my idea needs to be tweaked a little.
 
-<img src="project_2/sketch_3.jpg" atl="Sketch for infographic"/>
+<img src="project_3/sketch_3.jpg" atl="Sketch for infographic"/>
 
