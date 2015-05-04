@@ -50,7 +50,7 @@ Then I came to the idea of having a website were there is just the world map and
 
 I haven’t even got to how nice the data is laid out, throughout the report. They have used are really appealing colour pallet for the report. I would say that the colours are earthy tones which helps tie in the fact that the report is about the earth. You then have a really nice font that has been used through out the report. The information is clear and feels important on each page as you can see below.
 
-[The Solar Annual Report](https://m1.behance.net/rendition/modules/23020759/disp/b994e0f6c495a5202fdeb059b6822ff5.jpg?cb=1945039031)
+![The Solar Annual Report](https://m1.behance.net/rendition/modules/23020759/disp/b994e0f6c495a5202fdeb059b6822ff5.jpg?cb=1945039031)
 
 Sense looking at this project I went down a path of looking at similar types of projects. The one I am about to quickly write about isn’t visualizing any data but it is still an epic idea.
 
@@ -58,7 +58,7 @@ This project came from the World Press Photo and is titled Speaking Images 2015.
 
 The book also looks extremely nice. The cover for the book just says what is waiting in side for the viewer, with it subtly using sound waves to show this book has more to offer that most other photography books. Then I like the colour scheme that is used as the photos that are showen in the book are about death and the bad things that we bring to the world. So the colour scheme of the cover shouts this to the viewer with it being black and the spin being red as you can see in the image below.
 
-[Speak Images 2015](https://www.behance.net/gallery/25901637/World-Press-Photo-Speaking-Images-2015)
+![Speak Images 2015](https://www.behance.net/gallery/25901637/World-Press-Photo-Speaking-Images-2015)
 
 I then went from this project to another one that is again, epic. It is a web based project that is more tied to visually representing facts. This project is called Troy Davis- I am alive. You get brought to a page were you are immediately brought into the experience of the whole project as the story starts as soon as the page loads. You then have to interact with page to carry on the story. 
 
