@@ -58,7 +58,7 @@ This project came from the World Press Photo and is titled Speaking Images 2015.
 
 The book also looks extremely nice. The cover for the book just says what is waiting in side for the viewer, with it subtly using sound waves to show this book has more to offer that most other photography books. Then I like the colour scheme that is used as the photos that are showen in the book are about death and the bad things that we bring to the world. So the colour scheme of the cover shouts this to the viewer with it being black and the spin being red as you can see in the image below.
 
-![Speak Images 2015](https://www.behance.net/gallery/25901637/World-Press-Photo-Speaking-Images-2015)
+![Speak Images 2015](https://m1.behance.net/rendition/modules/170107625/max_1200/107b7420496cad6c64c8823ca655051d.jpg?cb=1945039031)
 
 I then went from this project to another one that is again, epic. It is a web based project that is more tied to visually representing facts. This project is called Troy Davis- I am alive. You get brought to a page were you are immediately brought into the experience of the whole project as the story starts as soon as the page loads. You then have to interact with page to carry on the story. 
 
