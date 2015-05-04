@@ -38,7 +38,7 @@ You have the dots in the top left and these represent the dramatic increase in t
 
 On my search for inspiration I found a lot of epic infographic’s, this one in particular I found interesting as its similar to an idea that I had for how to do this infographic. You can find that idea on down a bit. The website is a map of the Internet and cleverly titled [The Internet Map] (http://internet-map.net/#5-146.76316247285695-93.80676523420433). It visually shows every single website that on the Internet. I like this infographic as well because it ties in with what we were learning last semester. It uses one of the basic building blocks. So visually you have each country represent by a colour. For example Russia is red. Then to simply show which site gets the most traffic for that country the size of the circle gets bigger.
 
-![The Internet Map](http://infosthetics.com/archives/internet_map.jpg)
+![The Internet Map](http://visualizing.org/sites/default/files/imagecache/embedded_vis_medium/images/map_0.png)
 
 I like how it looks similar to how cave men splattered/ sprayed paint on walls to signify something. The only part I dis like about this infographic is the fact that when you click on a circle a window pops up telling you about said circle. Then when you click on another one it stays open. I feel that it should really disappear once you click on another circle.  I would love to see this as a live infographic, as it would a most be pulsing like a heart beat and the movement of the circles would be like a leaf in the wind.
 
