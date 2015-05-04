@@ -78,8 +78,12 @@ The whole feel of the infographic works for me, you have these nice colours that
 
 This next one I just like the look of it and I think it as a whole works perfectly, you can see it below.
 
-I just like the simplicity of the layout for this infographic and you really coudld use this idea to show case a lot of other world population facts. I love how it show the chaos that might happen in the sky with the crazy lines that are  around the centre graphic
+I just like the simplicity of the layout for this infographic and you really coudld use this idea to show case a lot of other world population facts. I love how it show the chaos that might happen in the sky with the crazy lines that are  around the centre graphic.
+
 ![Airbus Infographic](http://www.industryweek.com/site-files/industryweek.com/files/uploads/2013/09/airbus%20infographic.jpg)
+
+Then everthing else just works for the it. The type is nice and clear you have a nice colour scheme to go with it. Even though the colour for the main parts is so simple this is good as it draw attention to the more important information. Then I also just really like the landmarks that they have made.
+Then everthing else just works for the it. The type is nice and clear you have a nice colour scheme to go with it. Even though the colour for the main parts is so simple this is good as it draw attention to the more important information. Then I also just really like the landmarks that they have made.
 
 Bit about my own
 
