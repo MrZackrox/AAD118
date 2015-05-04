@@ -85,15 +85,35 @@ I just like the simplicity of the layout for this infographic and you really cou
 Then everthing else just works for the it. The type is nice and clear you have a nice colour scheme to go with it. Even though the colour for the main parts is so simple this is good as it draw attention to the more important information. Then I also just really like the landmarks that they have made.
 Then everthing else just works for the it. The type is nice and clear you have a nice colour scheme to go with it. Even though the colour for the main parts is so simple this is good as it draw attention to the more important information. Then I also just really like the landmarks that they have made.
 
-Bit about my own
+This will be the last one that I am going to write about as I could be here for years going through all the ones that I have found to draw inspiration from.
+
+This last one I actually found after the fact when I started my own idea as research never ends. I write this as if I had saw it before hand it could have made me go down a different path for my infographic.
+
+So below you can see that there is not much to the infographic but it looks extremly well done. Everthing works perfectly in this from the colour to the font that was used.
+
+![Steven Gastelum- World Population Facts](http://thumbnails-visually.netdna-ssl.com/world-population-stats_52cca1d5a8f5e_w1500.png)
+
+What I like most about it. Is that it takes you one a journy and follows the way we read books. Right from the start your eyes move along and absorb the information at hand.
+
+So it times for me to move past the research stage and make a start on my own infographic. Though as I wrote before the research stage is never over.
+
+
+Bit about my own Idea
+--------------------
 
 The next couple of days after hearing what the project was, ideas were swirling about my head in a never-ending loop. Some got thrown out of the loop as they were above the realm of what I could do.
 
 One of these ideas was to have a website. This website is just going to house circles which are big and small. These circles will be grouped into different sections. At the start they will be on top of each other and once you hover over one section it will expand and the circles will fly to the outside of the biggest circle. The biggest circle will be the year that has the most of what that section is about and it will house a bit of information about that year. Then it will be the same with the smaller circles. The bigger one could be a future prediction.
 
-I have had a few other ideas but I fell that this would be the nicest looking one if I choose a nice colour scheme and type.
+I have had a few other ideas but I fell that this idea would be the nicest looking one if I choose a nice colour scheme and type.
 
 When I had got my head out of the clouds. I thought of an idea that I really liked. It’s in the style of a normal inforgraphic with the height being longer. As you can see in the image below, I want to take the viewer on a story through facts about the world population. I wanted to go for then vs now facts. At the start this seemed like a good idea but when I started to bring my ideas into Illustrator I ran into problems.
+
+Below you can see the quick sketchs that I done before I went on into Illustrator. I had my idea more and less thoughout as you can see below. The then vs now idea came pretty quickly to me as its the first thing I wrote and it then effected everything after that.
+
+<img src="project_2/sketch_1.jpg" atl="Sketch for infographic"/>
+
+<img src="project_2/sketch_2.jpg" atl="Sketch for infographic"/>
 
 I wanted to have the globe some were at the top as this inforgraphic is about world population facts. A globe will visually tell that viewer what this inforgraphic is about. So I was thinking of having the globe in the middle and then the title rapping around it. You can sort of see this in the photo below.
 
@@ -115,9 +135,11 @@ I nearly got this idea finished but I realised that it was over cluttered and th
 
 I do like the lay out of the content in the inforgraphic as it was meant to seem like a mirrored image almost but just a few more on the ‘now’ side. If I had done this better I feel that it would have looked nice in the end. At one point I was thinking about giving the graphics similar colours to the background. I can see now that this was a bad idea as it takes away the visual impact that you would get from the graphics it they were a different colour.
 
-So this s were this idea got binned for just facts about the world population now. I feel that this was for the best as I done more with the graphics and it seems to flow better that this idea did.
+So this is were this idea got binned for just facts about the world population now. I feel that this was for the best as I done more with the graphics and it seems to flow better that this idea did.
 
 Writing about this older version now, I feel a bit silly as I probably could have gotten it to work but I just didn’t try hard enough with it.
 
 It isn’t till I start to move on when I realise that my idea needs to be tweaked a little.
+
+<img src="project_2/sketch_3.jpg" atl="Sketch for infographic"/>
 
