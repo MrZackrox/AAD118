@@ -117,3 +117,4 @@ I have realised that we are meant to be taking photographs of building so I thou
 Finial Words
 ------------
 
+So over all I really liked this module and would do it again. The reason I liked it so much is because I am all ready into photography and this rekindeld my passion for it for a while as it was cold outside and it was warm in side. I love the fact that you can train you eye to see all these interesting thing which you miss. All you need to do it tke your time. One you take your time your eyes will see the micosopic things that you would have other whys missed. So this is the main thing I am taking way from this modual. I want to soak in what amazing sights I see even if it is just a sunrise. 
