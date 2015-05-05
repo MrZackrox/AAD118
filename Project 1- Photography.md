@@ -96,15 +96,15 @@ Then I remembered about people taking photographs of snowflakes and this started
 
 Then this next photograph is of insects but it's not like the normal ones you see. What I like about this photograph most is the fact that it captures the snails in the home environment. I just feels like someone getting helped over a wall by a friend, which we as kids us to do daily. Then I like the different tonnes of colour that are in the photograph with the snails being in such contrast to what they are on. Then you have the use of focus in the photograph that is used perfectly as you can only really focus your eyes on the snails in the front. You then get this nice range of colour in the background that subtly says nature to me with the hint of red, green and brown.  
 
-![Andrew Osokin](http://en.www.lensart.ru/picture-pid-261c3.htm?ps=14)
+![Andrew Osokin](http://www.lensart.ru/picturecontent-pid-261c3-et-8f1ae2e)
 
 Then the next photograph I like because it is all round a fantastic photograph. What I like most about this photograph is the use of focus that is on the flower. To me this makes the photograph all most look likes a painting with the sun penetrating the petals of the flower. Then I like the use of composition to show a tiny bit more of other flowers to ground the photograph.
 
-![Andrew Osokin](http://en.www.lensart.ru/picture-pid-1d201.htm?ps=14)
+![Andrew Osokin](http://www.lensart.ru/picturecontent-pid-1d201-et-7d79e89)
 
 So I have all ready wrote about another one of his frost photographs but I just have to show this one as it is even better than the one I have all ready wrote about. I like that the frost is almost painting an image as to me I can see a rocky scenery with some trees in it. Then on the other hand it could a raging river after flash floods and its tearing the trees out from the homes. Or it might just be forest.  
 
-![Andrew Osokin](http://en.www.lensart.ru/picture-pid-2c0d3.htm?ps=14)
+![Andrew Osokin](http://www.lensart.ru/picturecontent-pid-2c0d3-et-98be92d)
 
 This is a random photograph that I found on line but I really like it as the photographer is playing with the depth of the photograph. The for-ground and the back-ground or out of focus. You would do this if you want the views eyes to focus on a certain part of the photograph. In this case it is the top of the fork breaking the surface of the water. 
 
